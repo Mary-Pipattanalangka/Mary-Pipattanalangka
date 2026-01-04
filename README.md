@@ -11,4 +11,4 @@ I have professional experience over 7 years of combined experience in import ope
 * 👥  I'm looking to collaborate on any project about data analyst
 
 
-olor=0891b2&bg_color=1c1917&hide_border=true&show_icons=true" alt="Mary-Pipattanalangka's GitHub stats" /></a>
+
